@@ -1,0 +1,6 @@
+- Copy this: ﱞ
+- Go to https://www.epicgames.com/account/personal
+- Click on the pencil next to your username
+- Type in New username your wish username like this "Fﱞ ortnite"
+- Press backspace next to the symbol, then the name is "Fﱞortnite"
+- Click confirm to save you new username
